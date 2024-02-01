@@ -1,0 +1,2 @@
+# ssjid
+TeruntukMU sekawan
